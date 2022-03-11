@@ -1,1 +1,1 @@
-# Elon-s-Biography
+GitHUb helps me a lot because i can organize all of my work from other websites into one software. From GitHib I can view other people's work and learn more code. I can share my work easily with anyone on GitHub. I can also see my progress on how i have doing with adding projects on GitHub. I would highly recomend GitHub to others coders as well because it's really organized and all of your work will be saved forevre.
